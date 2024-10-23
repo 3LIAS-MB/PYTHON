@@ -1,3 +1,3 @@
 1er año de Lic en Sistmeas
 
--> readme de todo lo visto pendiente
+-> readme de todo lo visto pendiente, en las vacas
